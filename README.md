@@ -1,4 +1,4 @@
-# 🍽️ ZAMAWIANIE-JEDZENIA
+# 🍽️ ZAMAWIANIE JEDZENIA
 
 *Savor Seamless Meals, Elevate Every Bite*
 
